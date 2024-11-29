@@ -40,11 +40,11 @@
 
 ## OUTPUT:
 
-![Uploading Screenshot 2024-11-29 140804.png…]()
+![Screenshot 2024-11-29 140804](https://github.com/user-attachments/assets/d37daeb0-6051-4796-9a4b-bae0910d2d57)
 
-![Screenshot 2024-11-29 141322](https://github.com/user-attachments/assets/16c0cfb7-4500-4051-95d3-a70d0a048dec)
+![Screenshot 2024-11-29 141322](https://github.com/user-attachments/assets/442810b5-324a-4b1d-915f-1b9ced75148c)
 
-
+![Screenshot 2024-11-29 142246](https://github.com/user-attachments/assets/8c8f8b19-e1e4-4714-94cd-309116b35e4d)
 
 
 
